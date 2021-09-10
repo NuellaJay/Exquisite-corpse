@@ -32,3 +32,7 @@ A failed attempt of one of Albert Einsten's theory was the cause of the unfortun
                           /##/           / ##    ##    ##   ##   ##   ##    /#    ##   ####    /  /###  ##     
                          /  ############/   ######     ###  ###  ###   ####/      ### / ######/  / #### /      
                         /     ##########     ####       ###  ###  ###   ###        ##/   #####      ###/   
+
+And this was how zombies invaded us with the help of the machines.  
+They had a common goal.
+There was nothing we could do about it..
